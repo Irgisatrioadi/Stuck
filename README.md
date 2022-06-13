@@ -1,0 +1,2 @@
+# Stuck
+Irgi Satrio Adi
